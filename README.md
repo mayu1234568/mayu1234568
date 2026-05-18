@@ -5,5 +5,5 @@
 
 
 
-- Alguem que respira e gosta de água👍
+- Alguém que respira e gosta de água👍
 
